@@ -1,2 +1,2 @@
 # ebooks
-my ebook collections *you're welcome* :>
+my ebook collection *you're welcome* :>
